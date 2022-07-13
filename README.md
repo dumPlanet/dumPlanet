@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dumPlanet
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning many different things
+- 💞️ I’m looking to collaborate on no exact idea
+- 📫 How to reach me https://dum-planet.de
